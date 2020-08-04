@@ -115,8 +115,7 @@ I go to work at 8:30 AM and come back at 6:00 PM. After one day work, I usually 
 
 A dog's foreign language 一只狗的外语
 
-
-A dog was so clever, his owner sent him to college. Home for vacation the dog admiited he had learned neither history nor science, but added proudly，I did make a
+A dog was so clever, his owner sent him to college. Home for vacation the dog admited he had learned neither history nor science, but added proudly，I did make a
 
 good start in foreign languages. Okey replied the owner Say something in a foreign languange. The dog said, "Meow!"
 
