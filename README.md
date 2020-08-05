@@ -138,7 +138,7 @@ term 学期
 
 campus 校园
 
-principal 校长
+principal [ˈprɪnsəpl] 校长
 
 teacher 教师
 
@@ -152,7 +152,7 @@ history 历史
 
 music 音乐
 
-biology 生物
+biology  [baɪˈɑːlədʒi]  生物
 
 computer 计算机
 
@@ -193,7 +193,6 @@ repeate 重复
 lecture 演讲
 
 library 图书馆
-
 
 I'm still studying. 我还在念书
 
