@@ -122,6 +122,175 @@ good start in foreign languages. Okey replied the owner Say something in a forei
 有一只狗非常聪明，于是主人送他去上大学,放假回家时狗承认他既没有学会历史也没有学会科学,但是它特别的骄傲的声称我在学习外语方面有了一个好的开始。好啊主人回答道,那就用外语说点什么吧，那只狗说道 喵
 
 
+#### Lesson 3 My School
+
+school 学校
+
+primary school 小学
+
+secondary school 中学
+
+college 学院
+
+university 大学
+
+term 学期
+
+campus 校园
+
+principal 校长
+
+teacher 教师
+
+English 英语
+
+Chinese 汉语
+
+math 数学
+
+history 历史
+
+music 音乐
+
+biology 生物
+
+computer 计算机
+
+classroom 教室
+
+textbook 教科书,课本
+
+pen 笔
+
+piece of paper 纸张
+
+blackboard 黑板
+
+rubber 橡皮
+
+desk 桌子
+
+chair 椅子
+
+ruler 尺子
+
+dictionary 字典
+
+exam 考试，测验
+
+quiz 测验
+
+mark 分数
+
+homework 家庭作业
+
+review 复习
+
+page 页
+
+repeate 重复
+
+lecture 演讲
+
+library 图书馆
+
+
+I'm still studying. 我还在念书
+
+I have some questions. 我有问题要问
+
+After school, I do my homework. 放学后我做家庭作业
+
+I don't want to fail my exams 我不想考试不及格
+
+I forgot my homework 我忘记写作业
+
+Could I use your ruler? 我可以用一下你的尺子吗
+
+It's my freshman year. 我是新生
+
+I failed my history mid-term. 其中考试我历史考砸了
+
+Can I borrow your textbook? 可以借你的书用下吗？
+
+I get a degree 我拿到了学位
+
+Do you have Chiese this afternoon 你下午有语文课吗?
+
+Can you say it again, please? 请你再说一遍好吗?
+
+Class begins 开始上课
+
+It's your turn 轮到你了
+
+Well done 做的不错
+
+Time's up 时间到
+
+Nobody? Anyone? No one Anybody else? 没有人还有别的人吗？
+
+Speak loudly 说大省点
+
+What do you think about that? 你的看法是
+
+Stand up 起立
+
+Go to the board 到黑板前来
+
+Write your name 写下你的名字
+
+Sit down 坐好
+
+open your book 打开课本
+
+Turn to page six 翻到第六页
+
+Read page six 朗读第六页
+
+Close your book 把书合起来
+
+put away your book 把书收起来
+
+Listen to the question. 听问题
+
+Raise your hand. 举手
+
+Give the answer 给出答案
+
+Answer the questions 回答问题
+
+Work in groups 小组讨论
+
+Help each other  相互帮助
+
+Do your homework 做你的作业
+
+Bring in your homework 带上你的作业
+
+Check the answers 检查答案
+
+Hand in your homework 交家庭作业
+
+Take out a piece of paper. 拿出来一张纸
+
+Turn off the lights 关掉灯
+
+Turn on the projector 打开放映机
+
+Take notes 做笔记
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
