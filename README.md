@@ -279,6 +279,69 @@ Turn on the projector 打开放映机
 Take notes 做笔记
 
 
+#### Lesson 4 
+
+It‘s hard being a student in ShenZhen 哎 深圳的学生真命苦
+
+Too much homework 太多作业了
+
+too many books and too many exams! 课本多 考试多
+
+Not another word 别啰嗦了
+
+Go straight to the library 去图书馆吧
+
+What homework do you have 今天有什么作业呀
+
+I need to work on English and math problem 今天有英语和数学的作业
+
+When do you have mid-term exams? 那你是什么时候期中考试呢?
+
+Next Friday, What's the matter? 下给星期五呀，怎么了？
+
+Well, you just have to work harder. 那你可得加油了
+
+The best way is to work out a schedule 最好分配一下你自己得时间
+
+Tell me the truth now. 告诉我真话
+
+Who did your home exercise? 究竟是谁做得作业?
+
+My father. 
+
+Quite alone? 就他自己嘛？
+
+No, I helped him with it 没有啊 是我帮他一起做得
+
+Jane did very well at school 简在学校表现得很好
+
+She always finishes her homework 她总是积极完成家庭作业
+
+She passed all her school exams 所有的考试她都通过了
+
+Now she is studying at Shenzhen University. 现在她在深圳大学读书
+
+Now she is majoring in English at the university 她现在在大学学的是英语
+
+She also enjoys taking notes and listening to lectures 她很喜欢做笔记和听课
+
+
+You have to go to school 你一定要去学校
+
+No one likes me at school, said the son his mother. The kids don't and the teachers don't. I want to stay home. You have to go ,son, insisted his mother， You're not sick and you have a lot to learn.Beasides, you're 45 years old，You are the principal and you have to go to school!
+
+学校里面没有人喜欢我,儿子对妈妈说,孩子们不喜欢我，老师页不喜欢我,我想呆在家里,你一定要去学校，儿子，母亲坚持道，你没有生病,你还有很多东西要学,此外，你已经45岁了,你是校长,你必须去学校。
+
+
+
+
+
+
+
+
+
+
+
 
 
 
