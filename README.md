@@ -333,6 +333,175 @@ No one likes me at school, said the son his mother. The kids don't and the teach
 学校里面没有人喜欢我,儿子对妈妈说,孩子们不喜欢我，老师页不喜欢我,我想呆在家里,你一定要去学校，儿子，母亲坚持道，你没有生病,你还有很多东西要学,此外，你已经45岁了,你是校长,你必须去学校。
 
 
+#### Lesson 5 My Job
+
+
+interview 面试
+
+apply 应聘
+
+experience 经验
+
+salary 薪水
+
+office 办公室
+
+desk 办公桌
+
+drawer 抽屉
+
+telephone 电话
+
+mobile phone 手机
+
+fax 传真
+
+photocopier 影印机
+
+CD-ROM 计算机存储器
+
+file 文件
+
+computer 电脑
+
+virus 病毒
+
+printer 打印机
+
+e-mail 电子信函
+
+agenda 日程表
+
+chairman 主席
+
+general manager 总经理
+
+CEO 执行总裁
+
+manager 经理
+
+assistant 助手
+
+colleague 同事
+
+employee 职员
+
+accountant 会计
+
+civil servant 公务员
+
+businessman 商人
+
+typist 打字员
+
+white-collar 白领
+
+doctor 医生
+
+nurse 护士
+
+policeman 警察
+
+waiter 服务员
+
+taxi driver 出租车司机
+
+cleaner 清洁工人
+
+reporter 记者
+
+pilot 飞行员
+
+hostess 女主人
+
+announcer 广播员
+
+host 主人
+
+I got an interview this afternoon 我下午有个面试
+
+I have 2 years experience in this sort of work 类似的工作经验我已经有2年了
+
+I work as a nurse in a large Children's hospital   我在一家大型的儿童医院做护士
+
+I work in a company which sells footwear 我在一家销售鞋类产品的公司工作
+
+I work for the government 我在政府部门工作
+
+I‘m a businessman 我是一个商人
+
+I started working there three months ago 我三个月前开始在哪儿工作
+
+I came here straight after finishing university 大学毕业后我就直接来这家公司上班了
+
+I’m Kate Smith. I'm the sales manager here 我是凯特.斯密士。我是这里的销售经理
+
+I‘m in charge of all the money the company makes and spends 我主管这家公司的所有收入和支出
+
+Our headquarters is in Shanghai 我们总部在上海
+
+I work in an office 我在办公室上班
+
+We have a branch in Shenzhen 我们在深圳有一家分公司
+
+I’m on my way to the office 我正在去公司的路上
+
+I have a meeting in 20 minutes 20分钟后我有个会要开
+
+Name a time and place 确认时间和地点
+
+Who's in charge here 谁是这里的主管
+
+Friday is payday 星期五是发薪水日
+
+I‘v got something pressing can I call you back later 我现在很忙晚点打给你行吗
+
+Can you fax it to me? Can you e-mail it to me 你可以发传真给我吗？你可以e-mail给我吗？
+
+My e-mail is ...我的电子邮箱地址是...
+
+Give me a call sometime 有时间打电话给我
+
+Thank you for your time 谢谢你的安排
+
+Do you have a minute 你现在有时间吗？
+
+I need it now 我现在需要它
+
+Take your time 慢慢来
+
+It can wait 可以等一下
+
+Leave it to me 把它留给我
+
+I’ll go staight there 我会直接去那儿
+
+Which floor? 到几楼
+
+I need to make some copies 我得复印几份
+
+Here you are 给你
+
+I'm going for coffee Do you want anything? 我去冲咖啡你要点什么?
+
+How's the project going 企业方案进展如何
+
+Where's the manager's office? 经理得办公室在哪里？
+
+Can you tell me where the copier is? 请问复印机在哪里
+
+What's the address there? 那边得地址是？
+
+I need the number for the accounting office 我要会计部得电话号码
+
+Could I get your telephone number? 我可以知道你得电话号码吗？
+
+My number is ... 我得电话号码是
+
+And I live at 我住在...
+
+
+
 
 
 
