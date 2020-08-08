@@ -501,6 +501,70 @@ My number is ... 我得电话号码是
 And I live at 我住在...
 
 
+#### Lesson 6
+
+My name is Marty 我的名字叫马丁
+
+I‘ve been in my present company 我已经在现在的公司
+
+for over three years 三年多了
+
+I come here staight after finishing university  我大学毕业后就直接来这里了
+
+I am really pleased 我很高兴
+
+because I start to earn money 因为我开始赚钱了
+
+I really enjoy my work 我很喜欢我的工作
+
+In the future, I'd like to have my own business 将来 我希望拥有自己的事业
+
+##### showtime 2 
+
+I'm a sales manager 我是一名销售经理
+
+My job is to welcome people as they come into the company's building 我工作是接待,哪些来我们公司的来宾
+
+I’ve been in this company for 2 years 我已经在这个公司工作2年了
+
+##### showtime 3
+
+I need to print this paper 我想打印这份文件
+
+but the printer isn't working 但是打印机坏了
+
+Can you I help me 你能帮我吗
+
+Of course. Let me check, first 当然我来看一下开始
+
+It works now 现在好了
+
+You are really something 你真厉害
+
+By the way 顺便问一下 
+
+could you make a copy of this  paper for me, please 你可不可以复印这份文件给我
+
+No problem 行
+
+Tank you 谢谢
+
+##### Show him the teeth 指给他看那颗牙
+
+A husband and wife went to see a dentist. The husband said,"I want a tooth pulled. I'm in a terrible hurry， Just do it as quickly as possible“. You're a brave man, said the dentist，Now, show me which tooth it is. So the husband turned to his wife and said, "Open your mouth and show him the tooth!.
+
+一对夫妇去看牙医，丈夫说:我要拔掉一颗牙,我现在赶时间呢,越快越好,你是一个勇敢的人,牙医说,现在指给我看看那颗牙,丈夫指向妻子,说道 张开嘴,把那颗牙指给他看
+
+
+
+
+
+
+
+
+
+
+
 
 
 
