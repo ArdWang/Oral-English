@@ -556,9 +556,111 @@ A husband and wife went to see a dentist. The husband said,"I want a tooth pulle
 一对夫妇去看牙医，丈夫说:我要拔掉一颗牙,我现在赶时间呢,越快越好,你是一个勇敢的人,牙医说,现在指给我看看那颗牙,丈夫指向妻子,说道 张开嘴,把那颗牙指给他看
 
 
+#### Lesson 7 My Love
 
+love 
 
+like
 
+single 单身的
+
+couple 对 夫妇
+
+relationship 关联
+
+date 约会
+
+cheat 骗子
+
+propose 计划，j建议
+
+honeymoon 蜜月
+
+serious 严肃的
+
+connection 关系
+
+love at first sight 一见钟情
+
+try to catch his/her eye 引起对方的注意
+
+go after somebody 追求某人
+
+go on a date 约会
+
+two-time 脚踏两条船
+
+break-up 结束
+
+fall in love 掉入爱河
+
+settle down 关系稳定
+
+move in together 同居
+
+introduce to one's parents 介绍给父母认识
+
+give her a ring 送戒指
+
+get married 结婚
+
+get on a honeymoon 度蜜月
+
+Are you married? 你结婚了没？
+
+Are you single 单身贵族
+
+Are you seeing anybody 你要去见什么人
+
+Can I see you again 我可以再约你出来吗？
+
+Are you busy this weekend 这个周末你忙吗？
+
+I‘d like to get to know you better 我想更加了解你
+
+Can I get your number? 我可以知道你的电话号码吗？
+
+She's my type 她是我喜欢的类型
+
+You're the best thing that's ever happened to me 遇见你是我一生中最美的邂逅
+
+Let me go 放了我吧
+
+I can't stop thinking about you 我时时刻刻都在想你
+
+We're meant for each other 我们注定要在一起
+
+I’ve never felt this way before 我以前从没有过这样心动的感觉
+
+I love you
+
+I miss you
+
+I'm not ready 我还没有准备好
+
+This is going too fast 我们进展的太快了
+
+You deserve someone better 我配不上你/你更适合别人
+
+You never take me seriously 你从没在乎过我
+
+Can't we still be friends 我们只能做朋友吗？
+
+Why don't you ask him out 你怎么不约她出去
+
+I‘m looking for a serious relationship 我正在寻找一份认真的感情
+
+We got back together 我们复合了
+
+You cheated on me 你欺骗了我
+
+How could you do that 你怎么能那样对我
+
+We broke up 我们分手了
+
+Is there someone else 你是不是喜欢上别人了
+
+I go for looks 我喜欢帅哥或者美女
 
 
 
