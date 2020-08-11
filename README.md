@@ -663,6 +663,51 @@ Is there someone else 你是不是喜欢上别人了
 I go for looks 我喜欢帅哥或者美女
 
 
+#### Lesson 8 
+
+Haven't you ever met a girl you cared for? 你见到你喜欢得女孩了嘛
+
+Only recently, it was love at first sight 最近遇见了，我们一见钟情
+
+Why didn't you marry her 那你为什么你话不知和她结婚呢
+
+I took a second look 我想再多看一眼
+
+You don't love me any more 你不再爱我了
+
+Will you go back to mother 那你是不是要回到你妈妈身边了呢？
+
+Don't bother 不用那么麻烦
+
+I‘ll go back to my wife 我回我老婆那得了
+
+For you 为了你
+
+I can climb the highest mountain swim the deepest river and cross the driest  [ˈdraɪɪst] desert 我可以上刀山，下火海也可以去沙漠
+
+Oh, that's so sweet 哦好浪漫呀
+
+Are we still on for the picnic this Saturday? 我们这个星期六去还去野餐嘛？
+
+Sure, if it doesn't rain 可以呀，要是不下雨得话
+
+##### Subject 1
+
+Am I the first girl you ever kissed 我是你第一个你亲个嘴得女孩嘛
+
+Now that you mention it 现在你倒是提醒了我
+
+your face is familiar  [fəˈmɪliər]  你得脸跟熟悉啊
+
+Well suited 登对
+
+What do you think about the marriage of the model and the fashion designer? 
+你怎样看那个模特和服务器设计师得婚姻
+
+They're well suited 他们太相配了
+
+
+
 
 
 
