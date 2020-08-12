@@ -706,7 +706,137 @@ What do you think about the marriage of the model and the fashion designer?
 
 They're well suited 他们太相配了
 
+#### Lesson 9 My hobbies
 
+hobby 业余爱好
+
+shopping 买东西 购物
+
+dancing 跳舞
+
+reading 阅读
+
+fishing 钓鱼
+
+climbing 攀登
+
+go to the pub 去酒吧
+
+Karaoke singing 唱卡拉OK
+
+Beijing opera 京剧
+
+acting 演戏
+
+sailing 航行
+
+camping 露营 野营
+
+painting 绘画
+
+sewing 裁缝 缝纫
+
+riding 马术 骑术
+
+playing Majiang 打麻将
+
+cooking 烹饪
+
+skating 溜冰
+
+playing piano 弹钢琴
+
+watch TV 看电视
+
+fashion 流行， 风尚
+
+design 设计
+
+clothes 衣服
+
+music 音乐
+
+singing 歌唱
+
+travel 旅行
+
+diary 日记
+
+advice 建议
+
+drinking 喝酒
+
+hate 讨厌
+
+smoking 抽烟
+
+like 爱好
+
+good 有益得
+
+bad 不健康得
+
+collect things 收集东西
+
+play games 玩游戏
+
+play cards 玩牌
+
+go for walks 散步
+
+flying 飞行
+
+Chinese food 中餐
+
+coffee 咖啡
+
+Coca-Cola 可口可乐
+
+pizza 比萨饼
+
+fast food 快餐
+
+cat 猫
+
+dog 狗
+
+I really like eating 我很喜欢吃
+
+What do you think about football 你喜欢踢足球吗
+
+I enjoy watching TV 我喜欢看电视
+
+I quite like reading 我十分喜欢阅读
+
+I love fishing 我喜欢钓鱼
+
+I often listen to the tapes in my bedroom 我经常在卧室听音乐
+
+I really like watching TV 我喜欢看电视
+
+I like the books about the animals 我喜欢有关动物得书
+
+I like to read the newspaper everyday 我喜欢每天看报纸
+
+I used to keep a diary 我有写日记的习惯
+
+On the weekends, I usually watch a video 周末我通常都看录像
+
+I like to drink wine sometimes 我有时候喜欢喝点酒
+
+The music has a good beat 这首乐曲节奏真好
+
+I prefer to read magazines more than newspaper 比起报纸我更喜欢看杂志
+
+I like music, cinema and sports 我喜欢音乐，电影和运动
+
+She likes singing and dancing 她喜欢唱歌跳舞
+
+Jack has a butterfly collection 杰克喜欢收集蝴蝶标本
+
+I go shopping whenever I am bored 我烦的时候就会购物
+
+I like to listen to pop music from the 80's 我喜欢听80年代的流行音乐
 
 
 
