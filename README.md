@@ -838,6 +838,54 @@ I go shopping whenever I am bored 我烦的时候就会购物
 
 I like to listen to pop music from the 80's 我喜欢听80年代的流行音乐
 
+#### Lesson 10 
+
+Where have you been - hunting 你去哪里了-去打猎吗？
+
+No, I've been fishing 不我去钓鱼了
+
+How could you fish with that shotgun 那你怎么用猎枪钓鱼呢
+
+They were flying fish 因为他们是飞鱼呀
+
+Were they biting today 他们上钩了吗？
+
+If they were，they were biting each other 要是有的话,它们也是自相残杀呀
+
+My favorite film is in town tonight 我最喜欢的那部电影要上映了
+
+Are you going to see it 你会去看嘛？
+
+Of course, It's a first-run film 当然咯， 这可是一部首映片啊
+
+Really? I will go 真的嘛 那我也去
+
+That's wonderful 太棒了
+
+We have lots of pop music CDS 我们有好多的流行音乐CD
+
+So do we 我们也是
+
+All our oldies are still on cassette, though 但是，我们的老哥还全是卡带的
+
+That's ok 哪有什么
+
+Some of our classical music is still on cassette. 我们有些古典音乐还是老唱片呢
+
+
+What are you doing? 你在干什么
+
+I‘m painting a picture of a cow eating grass 我在画一副牛吃草的画
+
+Where is the grass 草在哪里啊？
+
+The cow ate it  牛吃了
+
+Where is the cow? 那牛呢
+
+The cow left 牛走了啊
+
+Why should it hang around after all the grass is gone? 草多吃完了，牛为什么还在哪里晃悠呢
 
 
 
