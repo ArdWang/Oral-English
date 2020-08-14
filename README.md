@@ -888,6 +888,105 @@ The cow left 牛走了啊
 Why should it hang around after all the grass is gone? 草多吃完了，牛为什么还在哪里晃悠呢
 
 
+#### Lesson 11 I love sports
+
+sport 运动会
+
+gym 体育馆
+
+athlete 运动员
+
+player 比赛者
+
+badminton 羽毛球
+
+football 足球
+
+soccer 英式足球
+
+basketball 篮球
+
+baseball 棒球
+
+lose 输
+
+tennis 网球运动
+
+table tennis 桌球
+
+volleryball 排球
+
+skating 溜冰
+
+cycling 骑脚踏车消遣
+
+swimming 游泳
+
+skiing 滑雪
+
+jogging 慢跑
+
+running 奔跑
+
+walking 步行
+
+fishing 钓鱼
+
+golf 高尔夫
+
+champion 冠军
+
+game 比赛 游戏
+
+race 比赛
+
+official 官员 官方得
+
+referee 裁判
+
+coach 教练
+
+fan 球迷
+
+point 分数
+
+win 胜利
+
+tie 平局
+
+gold medal 金牌
+
+She won a gold medal at the Olympics 她在奥林匹克运动会得了金牌
+
+Yes 
+
+She plays golf everyday 她每天都在打高尔夫球
+
+He ran a 4-minute mile 他四分钟跑一英里
+
+They played badminton in school 他们在学校得时候打羽毛球
+
+There is a basketball game on TV 电视上正在播放篮球比赛
+
+This game is going to the tough 这场比赛越来越难
+
+We're going to kill them 我们一定要打败他们
+
+That sucks 太差经了
+
+Come on 加油
+
+Go go go 加油加油加油
+
+
+
+
+
+
+
+
+
+
 
 
 
