@@ -979,6 +979,63 @@ Come on 加油
 Go go go 加油加油加油
 
 
+#### Lesson 12
+
+We should start playing sports more 我们应该多运动运动
+
+Yeah, I want to get in shape 是啊 想身材变好点
+
+Which one 你呢
+
+How about swimming 游泳怎么样
+
+No, I'm afraid of water 啊 我害怕水
+
+Really? How about skiing 那滑雪呢
+
+I can't, I'm afraid I'd break my leg 不行啊我怕摔短腿
+
+Oh, well, how about biking 好吧 那骑自行车呢
+
+No way, I think I'll get hit by a car! 更不行 会被汽车撞上得
+
+Fine，You tell me what you think is safe 行啦 那你说什么运动安全
+
+How about sky-diving 跳伞怎么样
+
+What's your favorite sport? 你最喜欢什么运动
+
+Hmm.. I don't really know 额 很难说
+
+Well ，do you ever watch sports on TV 那你看体育频道吗？
+
+Yeah, I watch basketball all the time 嗯 我经常看篮球节目
+
+Well , then you must like basketball 那你肯定很喜欢篮球了
+
+No, actually I hate it 还好拉 实际上我讨厌它
+
+Then why do you watch it so much 那你为什么老看篮球节目
+
+Well, it's better than football 总比足球好看点吧
+
+Let's go swimming 我们去游泳吧
+
+Ok. Where should we go 好啊 去哪里游泳呢
+
+Why don't we go down to the lake 我们去那个湖怎么样
+
+It's not too far from here 哪里离这儿又不太远
+
+Fine. I'll be ready in a minute 好 我马上就可以准备好
+
+Ok, just Give me a few minutes to get ready 好得那就给我几分钟准备一下吧
+
+A famous TV star was recognized by someone in the street. Didn't I see you on TV last night asked the passer-by.I‘m sorry,I don't know，replied the star，When I'm on TV , I can't see out.
+
+一个又名得电视演员在街上被人认出来了,我昨天晚上不是在电视上见到过你吗？路人问道,对不起，我不知道,明星回答道,当我在电视里面得时候，我看不见外面
+
+
 
 
 
