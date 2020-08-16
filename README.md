@@ -1036,6 +1036,118 @@ A famous TV star was recognized by someone in the street. Didn't I see you on TV
 一个又名得电视演员在街上被人认出来了,我昨天晚上不是在电视上见到过你吗？路人问道,对不起，我不知道,明星回答道,当我在电视里面得时候，我看不见外面
 
 
+#### Lesson 13 My healthes
+
+hospital 医院
+
+weight 重量
+
+lose weight 减肥
+
+put on weight 增肥
+
+ket fit 保持身材
+
+be on a diet 节食
+
+cold 感冒
+
+flu 流感
+
+fever 发烧
+
+headache 头痛
+
+toothache 牙痛
+
+stomachache 胃痛
+
+sore 疼痛得
+
+throat 咽喉
+
+sore throat 喉咙痛
+
+cough 咳嗽
+
+sneeze 打喷嚏
+
+feel dizzy 感觉晕眩
+
+throw up 呕吐
+
+make an apponitment 约诊
+
+blood pressure 血压
+
+temperature 温度
+
+heart 心跳
+
+blood 血
+
+get an X ray 昭X光
+
+exercise 练习
+
+get an injection 注射
+
+take medicine 吃药
+
+Please take me to the hospital 请送我去医院
+
+I think I'd better see a doctor 我想我最好是去看看医生
+
+My stomach is upset 我胃不舒服
+
+I have a pain in my stomach 我肚子疼
+
+My ears are ringing 我耳聋
+
+My body aches all over 我全身都痛
+
+I have no appetite 我没有食欲
+
+I‘m going to throw up 我快吐了
+
+I ate too much 我吃得太多了
+
+I feel very hot 我觉得我很热
+
+I don't feel well yet 我还是觉得不舒服
+
+I have a sore throat 我喉咙痛
+
+One of my teeth is hurting 我牙痛
+
+I'm sneezing and coughing all the time 这段时间我老是打喷嚏咳嗽
+
+I feel very ill 我感觉很难受
+
+I’m hot, my body aches and I have a cough 我发烧了，全身发软又咳嗽
+
+Take care 当心
+
+Do you need to see a doctor? 你要不要去看医生
+
+I have a weak stomach 我得胃不好
+
+I‘m coming down with a cold 我染上了感冒
+
+Do I need an operation 我要动手术吗
+
+Cover your mouth when you cough 咳嗽得时候请闭嘴
+
+Do I have to go to a hospital 我必须去医院吗
+
+I’ll take care of it right away 我马上就给你配
+
+You can pick it up in about an hour 你可以一个小时后过来取
+
+
+
+
+
 
 
 
