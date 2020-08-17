@@ -1145,10 +1145,85 @@ I’ll take care of it right away 我马上就给你配
 You can pick it up in about an hour 你可以一个小时后过来取
 
 
+#### Lesson 14
 
+Do you feel well 你觉得自己健康吗？
 
+Are you fit and healthy 体形标准吗？
 
+Not really 不是很好
 
+I think I'm too fat 我觉得我太胖了
+
+I need to lose weight 我需要减肥
+
+Oh I see 是呀
+
+Fat is bad for our health 肥胖对我们得身体健康有很大得坏处
+
+Yes I also smoke 是呀 我还吸烟呢
+
+Maybe I should give up smoking 也许我该戒烟了
+
+Sure. If you have a healthy lifestyle，It's good for you 一定得戒了 好得生活习惯,对你得身体是有益处得
+
+How are you today 今天怎么样
+
+Not so good 不太好
+
+I think I got the flu or something 我觉得我感冒了有点不舒服
+
+What do you feel 你有什么症状
+
+I have a fever, chills and a sore throat 我发烧 打寒蝉 并喉咙痛
+
+Let me take a look，open your mouth/wead 让我看看 把嘴张开点
+
+Hmmm, your throat is pretty red 嗯 你喉咙非常红
+
+How long have you had the fever 你发烧多久了
+
+I believe since last night 我想是昨天晚上开始得
+
+You need to take five days rest 你需要休息五天
+
+Take some pills you should be completely well by then 吃些药之后你就会完全好得
+
+Good morning, Mr. Sang 早上好沈先生
+
+Good morning, Dr. Wilson 早上好，威尔逊医生
+
+Please sit down over here 请这边坐
+
+You told me you had a pain in your stomach last night 你说你昨晚肚子痛得很厉害
+
+That's right, doctor 是啊医生
+
+I couldn't sleep all night 我整晚都无法入睡
+
+Are you still in pain 你现在还痛吗
+
+No, not in as much pain as I was. 好点了， 不像原来那么得痛了
+
+Would you please lie down on the sofa 请你躺在沙发上好吗？
+
+Hum... it doesn't seem to be too serious 嗯 好像不太严重
+
+Just take two of these pills every meal 每天晚上吃两粒药
+
+Thanks 谢谢
+
+#### 开心十分
+
+Dad, is that true that an apple a day. 爸爸一天一个苹果
+
+Keeps the doctor away 医生远离我是真的吗
+
+That's what they say 人们是这样说的没错
+
+Well give me an apple , quick 太好了 快去给我一个苹果
+
+I‘ve just broken the doctor's window 我刚才把医生家的窗户打破了
 
 
 
