@@ -1046,7 +1046,7 @@ lose weight 减肥
 
 put on weight 增肥
 
-ket fit 保持身材
+keep fit 保持身材
 
 be on a diet 节食
 
