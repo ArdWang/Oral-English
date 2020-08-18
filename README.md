@@ -1226,6 +1226,113 @@ Well give me an apple , quick 太好了 快去给我一个苹果
 I‘ve just broken the doctor's window 我刚才把医生家的窗户打破了
 
 
+#### Lesson 15
+
+Happy 快乐得 幸福得
+
+well 健康得 良好得
+
+excitied 兴奋得
+
+proud 自豪得
+
+surprised 惊讶得
+
+pleased 高兴得
+
+relaxed 放松得
+
+tired 疲劳得
+
+mad 疯狂得
+
+confident 自信得
+
+angry 生气得
+
+upset 不开心得
+
+sad 忧愁的
+
+loneyly 孤独的，寂寞的
+
+boring 令人烦恼的
+
+worried 闷闷不乐的
+
+nervous 紧张的
+
+calm 平静的
+
+hot 热的 热情的
+
+thirsty 口渴的
+
+sleepy 困乏的
+
+cold 寒冷的
+
+hungry 饥饿的
+
+full 充满的，安全的
+
+ill 有病的
+
+sick 不舒服，有病的
+
+comfortable 舒适的
+
+relax 放松 休息
+
+I‘m happy 我很高兴
+
+I feel so relaxed 我感到很放松
+
+I’m very homesick 我非常想家
+
+I love my family 我爱我的家
+
+I don't like cartoons 我不喜欢动画片
+
+I hate my boss 我讨厌我的老板
+
+I want a new house 我想要一所新房子
+
+I hope I do well in the exam 我希望能够考出好成绩
+
+I‘m feeling down 我很诅丧
+
+That's so funny 太有趣了
+
+I’m worried 我很担心
+
+Oh my God 噢天啦
+
+I‘m afraid 我很害怕
+
+I’m nervous 我很紧张
+
+Get angry 生气
+
+a lot better 好多了
+
+Don't break my heart 别伤我的心
+
+Please don't disturb me 请别来打扰我
+
+Thank you for comforting me 谢谢你的安慰
+
+You look like you have something on your mind. 你似乎有心事
+
+I can't say it 我说不出来
+
+I need some peace and quiet 我需要静一静
+
+
+
+
+
+
 
 
 
