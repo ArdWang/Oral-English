@@ -1329,6 +1329,80 @@ I can't say it 我说不出来
 I need some peace and quiet 我需要静一静
 
 
+#### Lesson 16
+
+I need help 我需要帮助
+
+I have a problem meeting new people 看见陌生人我会害怕
+
+What's wrong 说说看怎么回事
+
+When I meet a pretty girl，I always shake and sweat 当我看见漂亮的女孩,我经常颤抖和出汗
+
+Really? Why are you so nervous 真的吗 那你为什么会这么的紧张呢
+
+I‘m not nervous 我没有紧张
+
+I feel pretty confident 我还觉得很自信
+
+They're usually shaking and sweating also 她们也经常颤抖和出汗啊
+
+What? Where are you meeting girls 什么你在哪儿见这些女孩
+
+At the gym, while exercising 在体育馆 锻炼的时候
+
+
+How about Tony's pizza 我们去托尼披萨店怎么样？
+
+Oh ,God, not there 哦 天啦 不要去哪儿
+
+Why not? Their pizza is amazing 为什么不？他们店的披萨饼的味道非常好
+
+I used to date one of the waitressess there 我曾经和那个店里的女服务员约会过啊
+
+Oh, that's embarrassing 哦 那好尴尬啊
+
+
+
+I‘m leaving my boyfriend for another guy 我离开我的男友和另一个家伙跑了
+
+I‘m sorry to hear that 听到你的这么说真遗憾
+
+It's not so bad, actually. 事实上 是一件好事
+
+Really? Why? 真的吗 为什么？
+
+Because you are that other guy 因为你就是那个人
+
+
+Don't feel bad dear 别担心 亲爱的
+
+I just can't bear to see you cry 我不忍心看你哭泣
+
+Dad, how do you handle bad moods? 爸爸，当你难过的什么你会做些什么呢？
+
+I usually drive to the seaside and shout my heart out. 我通常是开车去海边把心里不舒服的都孔出来
+
+what about you 那么你呢
+
+I just listen to some light music 我就会听些轻松的音乐
+
+
+An excited woman telephoned her doctor,"Doctor, doctor，my husband swallowed a mouse！What shall I do",Wav  a piece of cheese in front of his mouth until I get there，The doctor said. Fifteen minutes later he arrived at the house to find the woman waving a sardine in front of her husband's mouth. I said a piece of cheese，not a sardine!
+explained the doctor，I know you did，the woman replied，But I have to get the cat out first
+
+一个很激动的女人给她的医生打电话,医生，医生，我丈夫吃了一个耗子,我该怎么办啊?拿一块干咯,在他的嘴边直到我赶到哪里,医生说 15分钟之后医生赶到他们家看到那个女人拿着沙丁鱼在她的丈夫嘴巴摇晃,我说的是一块奶酪,不是一个沙丁鱼,医生解析道,我知道,女人回答道,但是我必须要先把猫引出来
+
+
+
+
+
+
+
+
+
+
+
 
 
 
