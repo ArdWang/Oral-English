@@ -1394,6 +1394,148 @@ explained the doctor，I know you did，the woman replied，But I have to get th
 一个很激动的女人给她的医生打电话,医生，医生，我丈夫吃了一个耗子,我该怎么办啊?拿一块干咯,在他的嘴边直到我赶到哪里,医生说 15分钟之后医生赶到他们家看到那个女人拿着沙丁鱼在她的丈夫嘴巴摇晃,我说的是一块奶酪,不是一个沙丁鱼,医生解析道,我知道,女人回答道,但是我必须要先把猫引出来
 
 
+#### Lesson 17
+
+I love myself 我爱我自己
+
+head 头
+
+forehead 前额
+
+eye 眼睛
+
+eyebrow 眉毛
+
+eyelashes 睫毛
+
+ear 耳朵
+
+nose 鼻子
+
+cheek 脸颊
+
+mouth 嘴巴
+
+lip 嘴唇
+
+tooth 牙齿
+
+tongue 舌头
+
+chin 下巴
+
+neck 脖子
+
+arm 手臂
+
+elbow 肘
+
+finger 手指
+
+shoulder 肩部
+
+back 背
+
+hip 臀部
+
+leg 腿
+
+knee 琪
+
+foot 足
+
+ankle 脚踝
+
+toe 脚趾
+
+heel 脚后跟
+
+waist 腰部
+
+hair 头发
+
+
+I had trouble with my eyes 我的眼睛有点问题-
+
+I kept seeing spots in front of my eyes 我的眼睛前部是小点
+
+Do your glasses help 要不要戴眼镜呢
+
+Yes I can see the spots much better 是呀 现在这些斑点更清楚了
+
+What's your favorite part of a girl's body? 你喜欢女哈子那个部分
+
+I like a girl with long legs 我喜欢腿长的姑娘
+
+Anything else 还有呢
+
+Yeah nice white teeth 嗯 洁白的牙齿
+
+smooth skin soft hair 光滑的皮肤 柔软的头发
+
+I can't believe you 我再也不相信你了
+
+Men are all the same 所有的男人都一样
+
+What's wrong 怎么了
+
+Then what about a girl's head 那女孩的头脑呢
+
+Don't you even care she has a brain? 难道你在乎她的思想
+
+
+I‘m getting sice 我病了
+
+What's wrong with you 怎么了
+
+My throat hurts 我喉咙痛
+
+and my neck is sore 脖子也痛
+
+Sounds like you're getting a cold 你好像是感冒了
+
+I don't think so 我想不是
+
+My feet and my arms hurt too 我脚和胳膊也痛
+
+That's strange 那奇怪了
+
+Anything else 还有那不舒服
+
+My elbows and knees are stiff and my fingers are numb 我的胳膊和膝盖都动不了手指也麻木了
+
+Oh my God 天哪
+
+that sounds serious 听起来很严重
+
+How's your stomach? 那你的胃呢
+
+It feels fine 很好
+
+That's good 那就好
+
+so at least we can have dinner now 至少我们现在还能吃饭
+
+
+
+A boy is on his hands and knees 男孩手抱着膝盖
+
+looking for something 正在找什么
+
+What are you looking for, young man 你在找什么年轻人
+
+I lost a doller I can't find it 我掉了一美元 我找不到了
+
+Don't worry you will 别担心你会找到的
+
+A doller doesn't go very far these days 如今 一美元是跑不远的
+
+
+
+
+
+
+
 
 
 
