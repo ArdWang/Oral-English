@@ -1531,12 +1531,163 @@ Don't worry you will 别担心你会找到的
 A doller doesn't go very far these days 如今 一美元是跑不远的
 
 
+#### Lesson 18
+
+grandparent 祖父 祖母
+
+grandfather 祖父
+
+grandmother 祖母
+
+parent 双亲
+
+husband 丈夫
+
+wife 妻子
+
+mother 妈妈
+
+father 父亲
+
+son 儿子
+
+daugther 女儿
+
+sister 姐妹
+
+brother 兄弟
+
+aunt 姑妈
+
+uncle 伯父
+
+niece 侄女
+
+nephew 侄子
+
+grandchild 孙女
+
+brother-in-law 大伯 小孩
+
+sister-in-law 嫂子
+
+father-in-law 岳父
+
+daugther-in-law 媳妇
+
+son-in-law 女婿
+
+step-mother 继母
+
+step-father 继父
+
+step-brother 同父异母
+
+step-sister 义父姐妹
+
+step-son 继子
+
+step-daugther 继女
+
+This is my... 这是我的
+
+May I introduce my... 请允许我来介绍一下我的。。。？
+
+I have a brother, Bill 我有一个哥哥，比尔
+
+We get along fine 我们相处的很融洽
+
+My mother is outgoing 我妈妈很外向
+
+My father is a workaholic 我爸爸是个工作狂
+
+Is Marty your husband? 马蹄是你丈夫吗？
+
+We're not married 我们没有结婚
+
+We live together 我们住在一起
+
+My parents are divorced 我爸妈离婚了
+
+We're best frineds 我们是最好的朋友
 
 
+My mother isn't home 我妈妈不在家
+
+How about your father 那你爸爸在家吗？
+
+Not home either 也不在家
+
+How about others，grandma or uncles 那其它人呢,你奶奶或者你的叔叔呢
+
+Both of them not at home 他们都不在家
+
+Who is home 哪还有谁在家
+
+My sister 我妹妹在家
+
+Ok, will you get your sister please? 把电话给你妹妹接听可以吗？
+
+Ok... delay... 好的耽搁中...
+
+I'm sorry, but you can't back talk to her 真是对不起，她不能和你说话
+
+Why not? 为什么呢
+
+I can't get her out of her crib 我不能把她从婴儿床里面抱出来
 
 
+My father was a bank roober 我的爸爸是个盗窃银行的强盗
+
+my sister is a shoplifter; 我的姐姐是商店扒手
+
+my oldest brother was hung 我的哥哥被绞死了
+
+and I have a brother 我还有个弟弟
+
+in Harvard Medical College. 在哈佛医学院
+
+Do you mean to tell me 你的意思是想告诉我
+
+out of a family of that kind，you have a brother who is a student in the Harvard Medical College? 在那样的家庭情况下，你还有个弟弟在哈佛上医学院
+
+I didn't say my brother is a student in the Harvard Medical College 我没有说我弟弟是在哈佛医学院的学生
+
+He's just there-they have him in a litter bottle of alcohol 他们只是把他放在一个小瓶子里面做标本啊
 
 
+My father is coming to visit soon 我父母不久就会来看我们
+
+That's nice, Why's he visiting? 好啊 他来这边干什么
+
+To see his granddaughter 来看他的孙女啊
+
+for the first time 这可是第一次
+
+Oh, is she his first grandchild 哦是他的第一个孙女儿是把
+
+Yes he will be so happy when he comes 是啊，他看见肯定会很高兴的
+
+
+I stayed in a small village last summer 我去年夏天住在一个小村庄里面
+
+The landlady kept animals 女房东养了一些宠物
+
+On the first day 第一天
+
+one of the chickens died 死了一只鸡
+
+so we had chicken for dinner 于是我们晚餐吃了鸡肉
+
+On the next day 第二天
+
+one of the pigs died 死了一头猪
+
+se we had pork chops 与是我们吃了猪排
+
+On the next day 第三天
+
+her husband died-so I left before dinner 他的丈夫死了,所以我们在晚饭之前就离开哪里了
 
 
 
