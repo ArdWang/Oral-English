@@ -1690,6 +1690,125 @@ On the next day 第三天
 her husband died-so I left before dinner 他的丈夫死了,所以我们在晚饭之前就离开哪里了
 
 
+#### Lesson 19
+
+My relationship 我的关系网
+
+friend 朋友
+
+boyfriend 男朋友
+
+girlfriend 女朋友
+
+neighbor 邻居
+
+classmate 同学
+
+roommate 室友
+
+teammate 队友
+
+colleague 同事
+
+boss 老板 上司
+
+manager 经理
+
+personal assistant 私人助理
+
+accounts manager 会计部经理
+
+secretary 秘书
+
+sales manager 销售经理
+
+sales representative 销售代表
+
+friendly 友好的
+
+handsome 英俊的
+
+
+I often have friends to dinner 我经常邀请朋友吃晚餐
+
+Sometimes I invite friends around 有时候我会请朋友到家里来
+
+My best friend comes to stay sometimes 我最好的朋友有时会在我家过夜
+
+I talk to my friends on the phone every evening. 我每天晚上打电话给朋友
+
+Say ‘Hi’ to Joe for me 代我向乔问好
+
+She's very friendly 她很友好
+
+I‘m looking for a roommate 我在寻找室友
+
+My neighbors are very noisy 我的邻居很少
+
+
+Do you ever see your classmates 你经常和你同学会面吗？
+
+I see them all the time 常见到他们的
+
+That's cool 那非常棒
+
+you must be really good friends. 你和他们肯定很要好
+
+Yeah, we are 是啊，我们是很要好啊
+
+My roommate, girlfriend and two co-workers are all former classmates 我的室友，女朋友和两个同事,都是同学啊
+
+
+Why are you one and half hours late for coming home 你为什么晚了一个半钟头才回家
+
+I’m really sorry.Mom 真对不起妈妈
+
+My classmate wanted me to go to the bookstore with her 我的同学要我陪她去逛书店
+
+I just thought it was going to be for a short while 我以为一会儿就好了
+
+Guess I got carried away and forgot the time  想不到一起,就忘记了时间
+
+All right 好吧！
+
+Remember to give me a call next time 下次要记得打电话跟我说
+
+so that I don't worry 免得我担心
+
+I know,I'll do that next time, Mom. 我知道，下次我照做 妈妈
+
+
+What' your birthday wish? 你的生日愿望是什么？
+
+I hope to be promoted to being manager and then go on a month's holiday and enjoy a much needed rest 我希望提升为经理然后再去玩一个月,我实在是需要休息了
+
+Don't you want to travel? 难道你不想旅行吗？
+
+Of course, I would 我当然想
+
+I would love to travel 我喜欢旅行
+
+However，I don't want to go around the world 可是,我不喜欢全世界跑来跑去
+
+I just want to go to Paris and live there for a while 我只是很想去巴昵玩一玩,并在那里住上一段时间
+
+
+I‘d like a cup of coffee 给我来一杯咖啡
+
+I’d like one, too, and make sure it's in a clean cup  我也要一杯请确保要干净的杯子
+
+Okay 好的
+
+which one of you ordered the clean cup? 你们两位堆点了干净的杯子
+
+
+
+
+
+
+
+
+
 
 
 
