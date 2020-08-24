@@ -1802,6 +1802,128 @@ Okay 好的
 which one of you ordered the clean cup? 你们两位堆点了干净的杯子
 
 
+#### Lesson 20
+
+clothes 衣服
+
+shirt 衬衫
+
+coat 外套
+
+dress 洋装
+
+T-shirt 圆领汗纱
+
+skirt 裙子
+
+jacket 短上衣 夹克
+
+suit 西服
+
+uniform 制服
+
+jeans 牛子裤
+
+sweater 毛衣
+
+pants 裤子
+
+pajamas 睡衣
+
+underwear 内衣裤
+
+tie 领带
+
+watch 手表
+
+belt 皮带
+
+shoe 鞋子
+
+sock 短袜
+
+My T-shirt is new but the jeans are old 我的T胁是新的但是牛子裤是旧的
+
+I have a red coat on 我穿着一件红色外套
+
+This dress is popular 这衣服很流行
+
+That shirt fits well 那件衬衫很合身
+
+This skirt looks good on me 这条裙子看起来很合适我
+
+The red pajama is very cute 那件红色的睡衣很可爱
+
+Put your clothes on 穿上你的衣服
+
+Medium size is fit for me  我穿中码
+
+Take off your shoes, please 请脱鞋
+
+This shirt is 100% cottom 这件衬衫百分百棉质的
+
+Her dress is pure silk 她的衣服由纯丝制造
+
+I can't find my new pajamas 我找不到我的新睡衣了
+
+The shoes are very nice 这双鞋很不错啊
+
+What is the idea of standing there with a hat on your head and an umbrella in your hand a fur coat on your arm and waring a bathing suit 你觉得站在哪里头上戴个帽子手里拿雨伞胳膊上搭着皮衣再穿上泳装怎么样
+
+No matter what the weather? 是啊无论什么样的天气
+
+you will be prepared 你都做好了完全的准备了
+
+
+What are you going to wear tommorrow? 你明天穿什么衣服?
+
+It‘s so hot 这么热
+
+I don't want to wear my jeans 我可不想穿牛子裤
+
+Yeah, you should wear a dress instead 是应该穿条普通的裤子
+
+Maybe I will, something made of light cotton it'll be cooler 也许吧 一些轻薄透气的衣服比较凉快
+
+I know how you can keep cool in the heat 我知道再热天怎么变凉快
+
+How 怎么
+
+Don't wear any underwear! 不穿内衣
+
+
+My name is Helen 我叫海伦
+
+I’m a beautiful woman, I think 我认为我是一个漂亮的女人
+
+So I love to buy clothes 所以我喜欢买衣服
+
+I have so many clothes bags,shoes and necklaces 我有很多衣服包鞋和项链
+
+I change my bag ,shoes and necklaces everyday to match my clothes 我每天都换包,鞋和项链去配我的衣服
+
+I bought a new pair of socks last night 我昨天晚上买了一双新袜子
+
+It's dark green 它是深绿色的
+
+with some cartoons on it 上面有一些卡通的图案
+
+Now I'm going to put them on and plan to go out shopping 现在我穿着这双袜子准备去逛街
+
+Remember my motto 记住我的座右铭
+
+Never put off till tomorrow what you can do today  永远不要吧今天完成的事情拖到明天
+
+We‘d better eat the rest of the cake 那我们最好把剩下的蛋糕吃完
+
+
+
+
+
+
+
+
+
 
 
 
