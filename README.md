@@ -1917,6 +1917,143 @@ Never put off till tomorrow what you can do today  永远不要吧今天完成�
 We‘d better eat the rest of the cake 那我们最好把剩下的蛋糕吃完
 
 
+#### Lesson 21
+
+breakfast 早餐
+
+lunch 午餐
+
+supper 晚餐
+
+dinner 正餐
+
+rice 稻米
+
+vegetable 蔬菜
+
+carrot 胡罗卜
+
+bean 豆
+
+potato 马铃薯
+
+pea 豌豆
+
+onion 洋葱
+
+meat 肉类
+
+beef 牛肉
+
+pork 猪肉
+
+chicken 小鸡 鸡肉
+
+fish 鱼
+
+seafood 海味
+
+noodle 面条
+
+dumpling 饺子
+
+fast-food 快餐
+
+pizza 比萨饼
+
+hamburger 汉堡包
+
+french fries 咋薯条 炸土豆片
+
+hot-dog 热狗
+
+sausage 香肠
+
+sandwich 三明治
+
+pie 馅饼
+
+cake 蛋糕
+
+fruit 水果
+
+orange 橘子
+
+apple 苹果
+
+banana 香蕉
+
+pear 梨子
+
+grape 葡萄
+
+strawberry 草莓
+
+pineapple 菠萝
+
+water 水
+
+mineral water 矿泉水
+
+tea 茶
+
+coffee 咖啡
+
+milk 牛奶
+
+fruit juice 水果汁
+
+beer 啤酒
+
+
+I love hot soup 我喜欢喝热的汤
+
+I often go to the fast-food restaurant 我经常去快餐店吃饭
+
+Sometimes I go to the pub to drink with my friend 有时候我喝朋友一起去酒吧喝酒
+
+Let's eat out tonight 我们今晚出去吃饭
+
+French fires are my favorite 炸薯条是我最爱
+
+I sometimes eat fruit sala as supper 我有时会把水果色拉当晚餐
+
+Do you want noodles or rice 你想要面条还是米饭？
+
+Vegetable soup is nice on a cold day 在冬天喝蔬菜汤不错的
+
+
+Lunch is on me 午餐我来请客
+
+It's my treat today For the next round it's you 今天我请客 下次轮到你了
+
+Can we get the check 我们可以看一下账单吗？
+
+I‘d like to see the menu 我想看下菜单
+
+I’ve had enough, thanks 我已经饱了 谢谢
+
+Mom, I'm home 妈妈我回来了
+
+Do we have anything to eat 有什么东西吃呢
+
+I‘m hungry 我肚子好饿啊
+
+Don't disturb me 别来烦我了
+
+Why don't you go out and buy some instant noodles? 为什么你自己不去买泡面吃呢？
+
+what's the matter, Mom? 怎么了妈妈？
+
+You look awful 脸色这么差
+
+Are you coming down with a cold 是不是感冒了啊
+
+I feel bad 我心情不好
+
+The publisher rejects my work 出版社把我的稿子给退了
+
+
 
 
 
