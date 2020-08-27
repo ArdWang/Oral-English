@@ -2055,6 +2055,74 @@ The publisher rejects my work 出版社把我的稿子给退了
 
 
 
+What's for dinner 晚餐吃什么
+
+Maybe fast-food 快餐吧
+
+hamburgers and French fries 汉堡包和炸薯条
+
+Oh, don't do that 哦别吃了
+
+it's so bad for you 对身体不好
+
+What should I have instead? 那我应该吃什么呢
+
+Anything else, 还有很多啊
+
+fruit vegetables some meat of fish 水果 蔬菜 肉和鱼
+
+Anything is better than fast-food. 那个都比快餐强
+
+I want something easy 我想吃简单点的
+
+like noodles or dumplings 像面条饺子之类就行了
+
+Don't worry, 别担心
+
+I‘ll cook it , It'll be easy and healthy. 我来做 既简单又有益健康
+
+Okay, but I’ll make dessert 好 但我想弄甜点
+
+Great, what will you make 行 你想弄什么？
+
+Beer and some cake 啤酒和蛋糕
+
+May I take your order now? 现在你可以点菜了吗？
+
+Sure I'd like a pineapple juice 可以我想要一杯菠萝汁
+
+also a boiled egg and tea and toast, please 一个煮鸡蛋 吐司 和茶
+
+How would you like your eggs ma'am 夫人 你的鸡蛋要怎么烹饪呢？
+
+Hard-boiled 给我全熟的
+
+And your toast, light or dark? 还有你的土司是稍微拷一下还是烤焦一点呢
+
+Light 稍微烤一下就好了
+
+Would you prefer your tea with lemon or milk? 请问红茶？配柠檬还是牛奶
+
+Milk 牛奶
+
+Now or later 现在上还是等一会儿
+
+Later will be fine 等一会儿就好了
+
+Look at the chicken 看看这些鸡肉
+
+It's nothing but skin and bones 什么都没有只有皮和骨头
+
+Yes sir 是的先生
+
+Would you like the feather too 难道你想要羽毛吗？
+
+
+
+
+
+
+
 
 
 
