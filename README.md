@@ -2119,6 +2119,146 @@ Would you like the feather too 难道你想要羽毛吗？
 
 
 
+#### Lesson22
+
+house 房子 住宅
+
+garden 花园
+
+flower 花
+
+grass 草
+
+door 门
+
+windows 窗口
+
+floor 地板
+
+room 房间
+
+bedroom 卧室
+
+bed 床
+
+alarm clock 闹钟
+
+wardrobe 衣柜
+
+shower 淋浴
+
+bathroom 浴室
+
+toilet 洗澡室
+
+basin 盆
+
+mirror 镜子
+
+comb 梳子
+
+dining-room 餐厅
+
+kitchen 厨房 
+
+fridage 电冰箱
+
+living room 客厅
+
+
+TV 电视
+
+remote control 遥控器
+
+photo album 相册
+
+My house has three bedrooms 我的房子有三间卧室
+
+I have to share a bathroom with my brothers. 我得和我得兄弟们共用一间浴室
+
+The sofa is near the window. 沙发靠近窗子
+
+Next to the sofa is a small table 靠近沙发得是一张小桌子
+
+I clean up my bedroom every week 我每周打扫一次卧室
+
+I feel relaxed in the living room 在起居室里面我感觉到很放松
+
+The taa table is in the middle of the room 茶几放在了房子得中央
+
+The telephone is on the chair 电话在椅子上
+
+My room is clean 我房间很干净
+
+The kitchen floor needs to be cleaned 厨房得地板需要清洁
+
+They deliver the newspaper everyday 他们每天发报纸
+
+Good morning 早上好
+
+Welcome to my house 欢迎来到我家
+
+Ok, Let's go inside 别客气了 我们进去吧
+
+All right We'll start with the kitchen and dinning room 好 我们从厨房和饭厅开始吧
+
+Ok good a refrigerator and an air-conditioner 哦 和不错呀 有冰箱和空调
+
+Is there a washing machine, too? 也有洗衣机是吗？
+
+Yes, Do you like it 是得 你喜欢嘛
+
+Yes, I'd like to take a look at the bedroom and bathroom 不错啊 我想看看卧室和浴室
+
+How's your new apartment? 新搬得公寓不错吧
+
+It's great 没话说
+
+the best I've ever lived in 是我住过最好得
+
+That's cool, What's it like? 不错啊 啥样得
+
+Well, ther are 2 bedrooms, 两间卧室
+
+a living room 还配有起居室
+
+a kitchen and a bathroom. 厨房和浴室
+
+Sounds normal 听起来很普通啊!
+
+What's so special? 有什么特别得
+
+Well, we also have a swimming pool 我们还有游泳池
+
+Cool Anything else? 好爽啊 还有呢
+
+There's a garden on the roof，huge windows in every room and a giant Tv in the living room 空中花园,每个房间都有巨大得落地窗户起居室还有台超大的电视
+
+Wow, that does sound good 哇 太棒了
+
+One  night before bed Harry, a three-year-old proundly told his grandmother that he'd brushed not only his own teenth but also the dog's The next day his grandmother bought Harry a new toothbrush Why did you buy me this he asked Because you brushed the dog's teeth with your old one Harry No I didn't Grandman he said I used yours 一天晚上 再睡觉前 一个三岁大的男孩韩瑞自豪的跟奶奶说他不仅可以刷自己的牙齿还可以给小狗刷牙呢第二天他的奶奶给他买了吧新的牙刷你为什么给我买这个他回答道因为你用的你的就牙刷给狗刷过牙齿了 哈瑞说 可我没有用啊我用的是你的
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
