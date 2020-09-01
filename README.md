@@ -2239,6 +2239,84 @@ Wow, that does sound good 哇 太棒了
 One  night before bed Harry, a three-year-old proundly told his grandmother that he'd brushed not only his own teenth but also the dog's The next day his grandmother bought Harry a new toothbrush Why did you buy me this he asked Because you brushed the dog's teeth with your old one Harry No I didn't Grandman he said I used yours 一天晚上 再睡觉前 一个三岁大的男孩韩瑞自豪的跟奶奶说他不仅可以刷自己的牙齿还可以给小狗刷牙呢第二天他的奶奶给他买了吧新的牙刷你为什么给我买这个他回答道因为你用的你的就牙刷给狗刷过牙齿了 哈瑞说 可我没有用啊我用的是你的
 
 
+#### Lesson 23 
+
+bus 公共汽车
+
+car 汽车
+
+bike 自行车
+
+train 火车
+
+plane 飞机
+
+boat 小船
+
+travel 旅行
+
+vacation 假期
+
+holiday 假日
+
+taxi 出租车
+
+subway 地铁
+
+credit card 信用卡
+
+ticket 票
+
+map 地图
+
+timetable 时间表
+
+camera 照相机
+
+passport 护照
+
+luggage 行李，皮箱
+
+lost-and-found 失物招领处
+
+security check 安全检查
+
+Customs 海关
+
+declare 申报
+
+duty-free shop 免税商店
+
+window seat 靠窗的位子
+
+post office 邮局
+
+bank 银行
+
+shop 商店
+
+supermarket 超级市场
+
+restaurant 饭店
+
+I go to work by car/bus/subway 我开车/乘公交车/乘地铁上班
+
+I go to school by bus/bike 我乘公交车/骑自行车上学
+
+The bus is leaving in five minutes 公车5分钟后离开
+
+Does this bus go to the train station? 这辆公共汽车去火车站吗？
+
+What time does the train leave for London? 去伦敦的火车几时开？
+
+Do you have a boat? 有船吗？
+
+My car's engine is dead 我的车发送机灭火了
+
+
+
+
+
 
 
 
