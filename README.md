@@ -2238,6 +2238,10 @@ Wow, that does sound good 哇 太棒了
 
 One  night before bed Harry, a three-year-old proundly told his grandmother that he'd brushed not only his own teenth but also the dog's The next day his grandmother bought Harry a new toothbrush Why did you buy me this he asked Because you brushed the dog's teeth with your old one Harry No I didn't Grandman he said I used yours 一天晚上 再睡觉前 一个三岁大的男孩韩瑞自豪的跟奶奶说他不仅可以刷自己的牙齿还可以给小狗刷牙呢第二天他的奶奶给他买了吧新的牙刷你为什么给我买这个他回答道因为你用的你的就牙刷给狗刷过牙齿了 哈瑞说 可我没有用啊我用的是你的
 
+#### Lesson 23
+
+
+
 
 #### Lesson 23 
 
