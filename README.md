@@ -2318,7 +2318,130 @@ Do you have a boat? 有船吗？
 My car's engine is dead 我的车发送机灭火了
 
 
+#### Lesson 24
 
+I want to go downtown 我想去市区
+
+Take the bus. It's only 10 dollars. 乘公交车去 只需要十美元
+
+If I take bus 223 我乘223
+
+will I reach my destination? 可以到吗？
+
+Yes, it runs every 10 minutes 可以 这路车每十分钟一趟
+
+I can't hear the tour guide 我听不见导游的话
+
+Ask her to speak slowly 叫她讲慢一点
+
+
+and to turn up the volume 并将把音量放大一点
+
+Are you having trouble hearing her also? 你听她说话也有困难吗？
+
+Yes, but I've taken this tour before, 是的，但是我以前来旅游过
+
+I don't need to listen to the guide 我不需要听导游的讲解
+
+
+Give  me a ticket to Paris, please 给我一张去巴黎的车票
+
+One-way or round-trip 单程还是来回
+
+One-way please 单程
+
+Watch out, the door is closing 小心， 车门要关了
+
+I just made it 我刚好冲上来
+
+Hold on the strap 拉住握环
+
+The subway stops suddenly sometimes. 地铁有时候会突然刹车
+
+I wish we could get a seat 要是我们有位置坐就好了
+
+It's always crowded at rush hour 高峰时间总是很拥挤的
+
+Maybe someone will get off. 也许有人会下车
+
+And then we will be able to sit down then 那时我们就可以坐下来了
+
+
+Taxi please 
+
+where to, ma'am 小姐 你上哪
+
+The railway station, and step on it 火车站快一点
+
+I‘ve got to be there in 15 minutes 我必须12分钟之内到哪里
+
+Piece of cake 小事一桩
+
+I can get you there in 15 minutes 我15分钟之内包管把你送到
+
+traffic or no traffic 不管交通阻塞不阻塞
+
+How has your holiday been? 假期过的怎么样？
+
+Terrible 很糟糕
+
+I’m sorry to hear that, What's wrong 很抱歉听到这个消息，发生什么了？
+
+When I arrived, my plane was late 当我到达的时候 飞机晚点了
+
+Well, that's not so bad 也不是很糟糕啊
+
+And they lost my luggage 并 航空公司遗失了我的行李
+
+Yeah that is frustrating 的确是受打击了
+
+Then my first day 之后我第一天
+
+I got on the subway and I got lost 在地铁迷路了
+
+Oh, that happens to everyone! 哦 经常有人迷路啊
+
+And then a thief stole my camera 但是有个小偷把我的相机给偷了
+
+Oh no 不是吧
+
+Yeah, I tried to buy a new one 是我想买个新的
+
+but I couldn't 但是我不能
+
+Why not? 为什么
+
+The thief got my credit card too 小偷把我的信用卡也偷了
+
+Ouch 天那
+
+Yeah, it's been horrible 是啊 太倒霉了
+
+Well, I guess you're happy 我想你很高兴
+
+to go home today 今天
+
+No, I'm not leaving today 不 我今天走不了
+
+Why not 为什么不
+
+I can't find my passport 我找不到我的护照
+
+
+
+Is this my train 这是我的火车吗
+
+No sir 不是先生
+
+it belongs to the railroad company 它属于铁路公司
+
+Don't be fun 别开玩笑了
+
+
+Can I take this train to Boston 我可以乘这辆火车去波士顿吗
+
+
+No sir, It's much to heavy 不先生 火车太重了
 
 
 
